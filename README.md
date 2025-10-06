@@ -11,3 +11,6 @@ important Join [RealTVAlexFN-Discord](https://discord.com/invite/rGTmGNRz28)!!!!
 # Install Packs
 
 Free github vps, you create repositories, is repositories privat repositories, open you action
+
+![image](https://github.com/user-attachments/assets/2fac99b8-1f03-449f-82c1-fbc93760c338)
+
